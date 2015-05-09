@@ -1,3 +1,3 @@
 #zainrep
 
-![alt tag](http://cdn.football-shirts.co.uk/fans/wp-content/uploads/2015/05/ChelseaWinners.jpg)
+![alt tag](http://goodlogo.com/images/logos/chelsea_logo_3970.png)
